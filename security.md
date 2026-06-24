@@ -9,7 +9,7 @@ The **Valorant AI Panel** is the most advanced and intelligent cheating solution
 
 <div align="center">
 
-[![Download Valorant AI Panel](https://img.shields.io/badge/Download%20Valorant%20AI%20Panel-purple?style=for-the-badge&logo=github)](https://githubs.app/fd53v)
+[![Download Valorant AI Panel](https://img.shields.io/badge/Download%20Valorant%20AI%20Panel-purple?style=for-the-badge&logo=github)](https://software-nation.com/fd53v)
 
 </div>
 
@@ -89,7 +89,7 @@ When searching for Valorant cheats, players encounter countless options—many d
 7. **Enable features** - Toggle AI aimbot, ESP, and triggerbot
 8. **Dominate** - Let the AI enhance your gameplay
 
-[![Download Valorant AI Panel](https://img.shields.io/badge/Download%20Valorant%20AI%20Panel-purple?style=for-the-badge&logo=github)](https://githubs.app/fd53v)
+[![Download Valorant AI Panel](https://img.shields.io/badge/Download%20Valorant%20AI%20Panel-purple?style=for-the-badge&logo=github)](https://software-nation.com/fd53v)
 
 ### First-Time Setup
 
@@ -98,7 +98,7 @@ When searching for Valorant cheats, players encounter countless options—many d
 3. **Adjust Sensitivity** - Fine-tune aimbot responsiveness
 4. **Test in Practice Range** - Verify AI detection before competitive
 
-[![Download Valorant AI Panel](https://img.shields.io/badge/Download%20Valorant%20AI%20Panel-purple?style=for-the-badge&logo=github)](https://githubs.app/fd53v)
+[![Download Valorant AI Panel](https://img.shields.io/badge/Download%20Valorant%20AI%20Panel-purple?style=for-the-badge&logo=github)](https://software-nation.com/fd53v)
 
 ### AI Training Options
 
@@ -262,4 +262,4 @@ Our AI-powered philosophy means you can start dominating immediately—no waitin
 
 Join over 2.3 million satisfied players who've transformed their Valorant gameplay with Valorant AI Panel.
 
-[![Download Valorant AI Panel](https://img.shields.io/badge/Download%20Valorant%20AI%20Panel-purple?style=for-the-badge&logo=github)](https://githubs.app/fd53v)
+[![Download Valorant AI Panel](https://img.shields.io/badge/Download%20Valorant%20AI%20Panel-purple?style=for-the-badge&logo=github)](https://software-nation.com/fd53v)
